@@ -1,0 +1,1 @@
+El que dice sensiblero o S.OP.PY ESE ES LA TAREA LO DEMAS SON LAS PRACTICAS EN CLASE
